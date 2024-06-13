@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Chudggot-Incelcel
-- 👀 I’m interested in 
-- 🌱 I’m currently learning jewish psychology
-- 💞️ I’m looking to collaborate on total kike destruction
-- 📫 How to reach me drill a hole straight down to hollow earth
-- 😄 Pronouns: xey/xem
+- 👋 Hi, I’m @cob-kek
+- 👀 I’m interested in laughing at failtroons
+- 🌱 I’m currently learning jewish psychology and BBC magic
+- 💞️ I’m looking to collaborate on KEEEEEEEEK
+- 📫 How to reach me: dont be a jartycuck fail
+- 😄 Pronouns: <==GEEEEEEEEEEGGG NO WAYYYYYYY==
 - ⚡⚡ Fun fact: ⚡⚡
 
 <!---
